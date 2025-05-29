@@ -1,2 +1,2 @@
 # Research
-All types of original research is here
+All types of my original research is found here
